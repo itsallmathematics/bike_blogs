@@ -1,4 +1,4 @@
-# Why I Ride - My Riding Philosophies
+# Why I Ride - My Bicycle Riding Philosophies
 
 I often am asked the question:
 
